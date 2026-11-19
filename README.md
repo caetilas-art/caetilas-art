@@ -8,6 +8,8 @@ Brazil | Open to Remote and International Opportunities
 
 
 LinkedIn: linkedin.com/in/cael-camargo-7b67a7368 
+
+
 [📄 Download Full Resume (PDF)](./Amanda_Camargo_AI_Generalist_Resume.pdf)
 
 
